@@ -8,3 +8,5 @@ after some time you saw that the bhakhri is rigid.now make a paste of tomato kec
 6]now add some meggie masala on the top of the bhakhri.
 7]in the last put cheese or paneer on the top.
 8]wait to cook for 15-20 minutes 
+9]after 15-20 minutes you pizza is ready to eat
+SO THAT'S ALL IS MY RECIPE I HOPE YOU WILL ALSO TRY
